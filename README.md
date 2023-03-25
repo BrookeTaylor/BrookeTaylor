@@ -1,7 +1,19 @@
-Hi, I’m Brooke!
+Hi, my name is Brooke!
 
-I work for Nebraska Furniture Mart as an Administrative Specialist in the Appliance Contractor Sales Division. My position is a mixture of admin, sales, and customer service. Homebuilders will send their clients in to our office to get help selecting their new kitchen and/or laundry appliances. We’ll manage their accounts and orders with us while also giving them and their clients the best deals around! If you’re a business customer and looking for a deal, you’ll likely encounter either myself or one of my colleagues. 
+I enjoy adventures, learning, and trying new things.
 
-I have a Bachelor of Arts degree from Fontbonne University with a major in Advertising and a minor in Graphic Design. I’m also pursuing a Bachelor of Science degree from Bellevue University, majoring in Web Development. 
+Some of my favorite adventures include road trips around the country with my beautiful little family or going hiking in the woods with my dogs.
 
-In my free time, I love spending time with my family. We’re always looking for fun new experiences for the kiddo to enjoy!  
+I’m committed to being a lifelong learner. Currently, I’m in school seeking a degree in web development from Bellevue University. After that, who knows what exciting opportunity will come next!
+
+I have at least a dozen different hobbies I pursue, photography, skateboarding, snowboarding, ice hockey, cooking, traveling, and web development just to name a few. I always advocate to try new things! Also, to not be afraid of being terrible at something new.
+
+A quote that I found that speaks to me goes like, “Fall down seven times, get up eight.” To me, this means to be relentless on whatever your dreams/aspirations are. Know that you’re going to stumble and be excited about each time you pick yourself up, so you can get back at it.
+
+As an aspiring web developer. I believe the internet is such an amazing concept! Connecting all of us together, for better or worse. However, the internet can be used for simply amazing things like education, connecting people and helping us explore the world outside (off the internet).
+
+The first time I used the internet was around the late 1990s, I was probably looking up a guide to Pokemon Blue. Then there was AIM, Ask Jeeves, GeoCities, Xanga, Myspace, Google, YouTube, Facebook, memes and somewhere in there twenty years happened!
+
+Once covid became a thing, I was forced to look at my career with a new perspective. Early into the pandemic I caught it and ended up missing a few weeks of work. When I was finally able to return, I was riddled with anxiety. It was then and there, I decided I wanted to learn web development.
+
+Like anything else that matters, it hasn’t been without sacrifice, and I’ve certainly taken a few tumbles along the way; but there’s nothing in my way that I can’t pick myself up from!
